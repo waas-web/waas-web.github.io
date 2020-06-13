@@ -1,1 +1,1 @@
-Tempalte source: https://templatemo.com/tm-520-highway
+Template source: https://templatemo.com/tm-520-highway.
